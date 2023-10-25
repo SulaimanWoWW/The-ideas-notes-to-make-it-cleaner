@@ -1,0 +1,1 @@
+# The-ideas-notes-to-make-it-cleaner
